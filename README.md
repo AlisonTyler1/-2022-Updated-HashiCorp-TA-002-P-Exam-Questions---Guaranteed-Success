@@ -1,0 +1,1 @@
+# -2022-Updated-HashiCorp-TA-002-P-Exam-Questions---Guaranteed-Success
